@@ -1,2 +1,2 @@
-![image](https://github.com/user-attachments/assets/a087dabc-79d3-4ba9-b9c3-75b920e8b702)
-︵‿︵＼・・・．．．…━━━☆ (─‿‿─)
+![image](https://github.com/user-attachments/assets/57d9528f-ffeb-4f43-99f2-4efc20350c70)
+
